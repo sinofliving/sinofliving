@@ -14,7 +14,7 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 ### 💬 Notes
 1. Please ask before C+H — friends are always welcome.
 2. Copying my Ponytown Skins = block 🚫  
-3. I am an ENTP, therefore quite mischievous. (i will bully you, but only if we are close. My bullying or insulting is never meant to be taken serious.)
+3. I am an ENTP, therefore quite mischievous. (I may bully you, but only if we are close. My bullying or insulting is never meant to be taken serious.)
 
 ---
 
@@ -25,20 +25,21 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 ## 🦀 About Me
 ![badge](https://img.shields.io/badge/Osamu%20Dazai-Kin-brown?style=for-the-badge)
 
-I stay up late talking to friends, watching horror movies, or playing games.       
+I tend to stay up late quite often either conversing with Friends, watching some Horror Movie or Playing any of the Games mentioned below.       
 A big dislike of mine: people who only come to unload their misery onto me, expecting i'll entertain it like a clown.  
 
 ---
 
 ### 🎮 Games I Enjoy
-Roblox → SEWH, Evade and random Stupid Obbies.   
-VrChat → Mostly play Horror Games on there.
+Roblox → SEWH, Evade, any type of Horror Games and random Stupid Obbies.   
+VrChat → Mostly play Horror Games on there.   
+CallofDuty → I only play the Campaigns because i love Military Games that have some Storylines in them.
 
 ### 💫 Fandoms
 Bungou Stray Dogs, Call of Duty, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
 
-### 💖 Favs/Kins
-Osamu Dazai(BSD), John MacTavish + 2009 Simon Riley + Phillip Graves from CoD, Jax(TADC), Spamton(DR), 
+### 🎶 My Kins
+Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Jax from The Amazing Digital Circus and Spamton from Deltarune.
 
 ---
 
