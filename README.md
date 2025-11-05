@@ -36,7 +36,7 @@ VrChat → Mostly play Horror Games on there.
 CallofDuty → I only play the Campaigns because i love Military Games that have some Storylines in them.
 
 ### 💫 Fandoms
-Bungou Stray Dogs, Call of Duty, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
+Bungou Stray Dogs, Call of Duty, Hazbin Hotel, Helluva Boss, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
 
 ### 🎶 My Kins
 Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Jax from The Amazing Digital Circus and Spamton from Deltarune.
