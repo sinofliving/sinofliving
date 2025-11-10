@@ -7,7 +7,7 @@
 
 <p align="center"><i>“Living itself is the source of sin. As long as I can make them laugh, it doesn't matter how, I'll be alright. If I succeed in that, the human beings probably won't mind it too much if I remain outside their lives. The one thing I must avoid is becoming offensive in their eyes: I shall be nothing, the wind, the sky.”</i><br>— Osamu Dazai</p>
 
-Pronouns: Any (I am Agender, therefore the choice of my Pronouns is entirely yours.)     
+Pronouns: Any (I do not concern myself with whatever Gender people perceive me as.)     
 Orientation: Aro-Ace. Never come to me with anything other than Platonic Feelings. I do not do Commitments.
 
 ### 💬 Notes
