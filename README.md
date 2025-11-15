@@ -1,11 +1,11 @@
-## BYF! 🦀
+## BYF! ♡
 
 <p align="center"><i>“Living itself is the source of sin. As long as I can make them laugh, it doesn't matter how, I'll be alright. If I succeed in that, the human beings probably won't mind it too much if I remain outside their lives. The one thing I must avoid is becoming offensive in their eyes: I shall be nothing, the wind, the sky.”</i><br>— Osamu Dazai</p>
 
 Pronouns: Any (I do not concern myself with whatever Gender people perceive me as.)     
 Orientation: Aro-Ace. Never come to me with anything other than Platonic Feelings. I do not do Commitments.
 
-### 💬 Notes
+### -> Notes
 1. Please ask before C+H unless specified otherwise — friends are always welcome.
 2. Copying my Ponytown Skins = block 🚫  
 3. I am an ENTP, see that however you wish.
@@ -18,10 +18,10 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 
 ## 🦌 About Me!
 
-### 💫 Fandoms
+### ☆ Fandoms
 Bungou Stray Dogs, Call of Duty, Hazbin Hotel, Helluva Boss, FNAF, Undertale, Deltarune, NBC Hannibal, Deadpool and Wolverine, and more!
 
-### 🎶 My Kins
+### ◇ My Kins
 Osamu Dazai from Bungo Stray Dogs(highest kin unfortunately), Alastor from Hazbin Hotel(Possibly second highest kin.. i'm not sure yet.), Jax from The Amazing Digital Circus and Spamton from Deltarune.
 
 ---
