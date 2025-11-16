@@ -1,3 +1,5 @@
+<img src="https://github.com/user-attachments/assets/70b0a060-e54c-434c-ac46-7cd212e82b06" width="100%" align="center">
+
 ## BYF! ♡
 
 <p align="center"><i>“Living itself is the source of sin. As long as I can make them laugh, it doesn't matter how, I'll be alright. If I succeed in that, the human beings probably won't mind it too much if I remain outside their lives. The one thing I must avoid is becoming offensive in their eyes: I shall be nothing, the wind, the sky.”</i><br>— Osamu Dazai</p>
@@ -9,10 +11,6 @@ Orientation: Aro-Ace. Never come to me with anything other than Platonic Feeling
 1. Please ask before C+H unless specified otherwise — friends are always welcome.
 2. Copying my Ponytown Skins = block 🚫  
 3. I am an ENTP, see that however you wish.
-
----
-
-<img src="https://github.com/user-attachments/assets/a629b43c-60ad-4650-8270-45aaab831381" width="100%" align="center">
 
 ---
 
